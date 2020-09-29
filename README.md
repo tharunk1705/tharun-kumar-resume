@@ -1,1 +1,1 @@
-# tharuun-kumar-resume
+# tharun-kumar-resume
